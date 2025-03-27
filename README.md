@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently studying 
+I am currently studying In St Aloysius College Manglore
 
 
 ## 🌐 Socials:
